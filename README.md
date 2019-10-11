@@ -1,5 +1,6 @@
-# The Nanjing Massacre During WW2
-## a 2-Minute Read
+# Nanjing | Lest We Forget
+## The Nanjing Massacre During WW2
+
 Hello. Thank you for opening this page! My name is Xiaoxuan. I’m a Chinese living in Australia. 
 
 This page is written and maintained entirely by myself, for my personal sharing purpose only. I guarantee that it is free of hatred of any kind. The sole purpose of this page is to spread the awareness of the Nanjing Massacre outside Chinese-speaking communities. May we remember the history and the world be free of slaughters.
