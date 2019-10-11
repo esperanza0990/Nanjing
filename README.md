@@ -1,4 +1,4 @@
-# Nanjing | Lest We Forget
+# Nanjing
 ## The Nanjing Massacre During WW2
 
 Hello. Thank you for opening this page! My name is Xiaoxuan. I’m a Chinese living in Australia. 
