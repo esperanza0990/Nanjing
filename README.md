@@ -8,7 +8,7 @@ This page is written and maintained entirely by myself, for my personal sharing 
 ### What is the Nanjing Massacre?
 The Nanjing Massacre was a horrific slaughter of Chinese cilivians in 1937 by the Imperial Japanese Army in the city of Nanjing, then the capital of China. It started on December 13, 1937 and lasted for six weeks. Massive murders and rapes were commited, and the crimes were unbelievably brutal. There is no official statistics, but the number of victims is estimated to be around 300,000.
 
-The incident took place in 1937, but I used “during WW2” in the title, which may cause controversy since it’s widely known that WW2 started in 1939 and ended in 1945. Here’s my brief explanation: in the English-speaking world, the war in which the Nanjing Massacre took place was commonly called “the Second Sino-Japanese War”. But that is literally the same war (look it up!) that ended when Japan surrendered on September 2, 1945. Therefore I think it is legitimately part of World War 2. I honestly don’t see any reason why not.
+The incident took place in 1937, but I used “during WW2” in the title, which may cause controversy since it’s widely known that WW2 started in 1939 and ended in 1945. Here’s my brief explanation: in the English-speaking world, the war in which the Nanjing Massacre took place is commonly called “the Second Sino-Japanese War”. But that is literally the same war (look it up!) that ended when Japan surrendered on September 2, 1945. More importantly, at the same time Japan invaded not only China but several Asia-Pacific countries. Therefore I think it is legitimately part of World War 2. I honestly don’t see any reason why not.
 
 ### In Memory of Our People
 Chinese people take this incident extremely seriously. 
